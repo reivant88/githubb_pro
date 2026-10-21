@@ -1,5 +1,5 @@
 # githubb_pro
-repunk
-Reivant Febriano Permana Putera 
-Repann
-12merdekaa2 
+repunkk
+Nama Lengkap : Reivant Febriano Permana Putera 
+Nama Panggilan : Reivant 
+Kelas : 12merdekaa2 
